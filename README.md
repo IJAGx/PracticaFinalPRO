@@ -1,8 +1,8 @@
 ## Participante del GRUPO:
 
-Inocencio Junior Avila Gonzalez  =  2021-0836
+IJAG =  *********
 
-Juan Carlos De la Rosa Concepcion  =  2018-6890
+Juan CarloS  =   *********
 
 ## Link del Video: 
 https://youtu.be/O-ZGdiNX4I4
